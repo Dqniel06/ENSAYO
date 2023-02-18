@@ -1,0 +1,4 @@
+Fast & Furious (también conocida como The Fast and the Furious, Rápidos y furiosos en Hispanoamérica y The Fast & The Furious: A todo gas en España) es una franquicia de medios estadounidense centrada en una saga de películas de acción que se ocupan en gran medida de automóviles. 
+La saga también incluye cortometrajes, una saga de televisión, espectáculos en vivo, videojuegos y atracciones de parques temáticos. 
+Está distribuida por Universal Pictures.
+ Si bien la saga ha tenido una baja muy importante del elenco con la muerte de Paul Walker en 2013, Vin Diesel continuó con las series de películas que le prometió al actor ya fallecido, recalcando que junto con el resto del elenco consideran que aun la saga está muy activa.
